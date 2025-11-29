@@ -1,1 +1,1 @@
-# GROUP5-G5-QUIZ-REWARDS
+# GROUP5-G5-Quiz-Rewards
